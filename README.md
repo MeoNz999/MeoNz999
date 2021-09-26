@@ -1,3 +1,3 @@
-![logo](https://media.discordapp.net/attachments/863327063150166027/889015193626095627/Anime_Gifs.gif)
+![logo](https://media.discordapp.net/attachments/885834435688292353/891670748358402129/Anime_Gifs.gif)
 
 ## 🍖 MeoNz
